@@ -10,3 +10,8 @@ and or
 
 ![[Golde33443.jpg]]
 
+
+![[Golde33443-1.jpg]]
+
+
+![undefined](https://upload.wikimedia.org/wikipedia/commons/6/6e/Golde33443.jpg)
